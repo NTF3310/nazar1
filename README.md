@@ -1,1 +1,1 @@
-nazar.com
+https://nazar.com
